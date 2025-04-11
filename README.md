@@ -1,5 +1,5 @@
 ## Hi there 👋
-😊I am Dipti. I am trying to grow my GitHub repositories by adding cool new projects.
+😊I am Dipti. I am trying to 🤩grow my collection of GitHub repositories by adding 😎cool new projects.
 <!--
 **Dipti369/Dipti369** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
